@@ -1,3 +1,3 @@
-# woohoo-tax-uk
+# woohoo-co-nz
 
-https://www.woohoo.tax
+https://www.woohoo.co.nz
